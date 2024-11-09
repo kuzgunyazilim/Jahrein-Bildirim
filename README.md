@@ -4,4 +4,4 @@ Canlı yayın başladığında ve Youtube paylaşımlarında bildirim alırsın�
 @jahreinboss @jahistan - Youtube
 @jahrein - Kick
 
-Kanala Katılın : https://t.me/+cMGV_TuK0I9mNmNk
+Kanala Katılın : https://t.me/jahreinbildirimler
